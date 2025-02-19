@@ -1,1 +1,1 @@
-# Ntambara Sylvestre Owen PersoNAL Website
+# Ntambara Sylvestre Owen Personal Website
